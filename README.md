@@ -1,4 +1,4 @@
-### Bem vindos ao perfil da Jess 🦋🌸
+### Bem vindos ao perfil da Jess 🦋🥀
 
 Meu nome é: Jéssica Candançan Lima ⭐
 
@@ -8,3 +8,8 @@ Meu nome é: Jéssica Candançan Lima ⭐
   
 ### você pode entrar em contato comigo 📫
 jessicacandancan@gmail.com
+
+![](https://media1.tenor.com/m/odzK--APcXIAAAAC/peach-goma.gif)
+
+
+
